@@ -1,2 +1,2 @@
 # 100xraj
-Going to create projects.
+giving my passion the start it deserves!
